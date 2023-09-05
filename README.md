@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **anujshetty17102002@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/s/tzfowpv7nccq63l/Anuj%20Shetty%20Resume.pdf?dl=0](https://www.dropbox.com/s/tzfowpv7nccq63l/Anuj%20Shetty%20Resume.pdf?dl=0)
+- 📄 Know about my experiences https://www.dropbox.com/scl/fi/nua8rzoum2a14rtqp5kzi/4AL20CS019_Anuj_S_Shetty.pdf?rlkey=m0x0lhnnu1vgthggdrtll5gyq&dl=0
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
